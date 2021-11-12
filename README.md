@@ -1,3 +1,3 @@
 My first repository.
 
-<3     \/ @ D 1 /\/\
+<3   V A D I M
